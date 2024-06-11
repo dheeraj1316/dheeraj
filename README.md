@@ -1,2 +1,2 @@
 # ddos
-# By HynaXRohit  TG @Mr_Rohit101
+# By DAKUOP @DAKUOP_0001
